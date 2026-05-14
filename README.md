@@ -15,7 +15,7 @@ I got frustrated a while ago that parties here get voted in and end up doing wha
 
 There are 12 functions within DF, and I consider them the jewels of life: Knowledge, Wisdom, Understanding, Freedom, Justice, Equality, Food, Clothing, Shelter, Love, Peace, Happiness. I think each of the party members (I am not sure how many there are) might fit within one of these. I chose Understanding. Maybe one or more works for you based on your skills and conditioning and passions.
 
-People email ideas in. Every weekend the survweys are broadcast on FTA TV. People use the rods to vote. The votes are counted. The decision becomes policy. Then the decisions get implented.
+People email ideas in. Every weekend the surveys are broadcast on FTA TV. People use the rods to vote. The votes are counted. The decision becomes policy. Then the decisions get implented.
 
 https://elections.nz/media-and-news/2026/2026-broadcasting-allocation-decision is important.
 
