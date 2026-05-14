@@ -55,7 +55,7 @@ Here are the issues I think about that never seem to get sorted out. I have been
 
   <img width="158" height="263" alt="image" src="https://github.com/user-attachments/assets/2d1e7c29-5f44-4f75-a4d7-bd9b74847f86" />
 
-Should we put Braille on them? Or would be raised buttons enough? 
+Should we put Braille on them? Or would raised buttons be enough? 
 
 What matters to you? How do we do the voting rods? Email me.
 
