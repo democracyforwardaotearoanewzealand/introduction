@@ -9,7 +9,7 @@ Like a gameshow, but not at all a game.
 
 **How does it work?**
 
-The fundamental concept is that we are each one person. I am only one person. I get one say. We all have opinions. Sometimes we disagree and argue. But that's how it works. We all come from a place of passion, and that can present as both worry and care. And passion for Aotearoa New Zealand comes from a very good place. It means we want to have a say. And we all deserve one.
+The fundamental concept is that we are each one person. I am only one person. I get one say. We all have opinions. Sometimes we disagree and argue. But that's how it works. Opinions are a very good thing. Caring for Aotearoa New Zealand comes from a very good place. It means we want to have a say. And we all deserve one.
 
 I got frustrated a while ago that parties here get voted in and end up doing whatever they want. And they don't stick to their promises. They try to do too much. And they end up not representing their voters. 
 
