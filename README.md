@@ -25,7 +25,7 @@ Fairness means that the voting rods are randomly sent out, the barcodes and seri
 
 Have a think about what matters to you. What would you vote on? Have some healthy chats with eachother. Some healthy discourse. All sorts of issues matter. We won't need to vote on everything that happens. But we all deserve to have our voice respected. And that's what it's all about.
 
-Here are the issues I think about that never seem to get sorted out. I have been in NZ years and I think they would be a good start. 
+Here are the issues I think about that never seem to get sorted out. I have been in NZ for 11 years and I think they would be a good start. We can vote on ways to fix these. Some with yes/no answers, some with multi-choice answers.
 
 - Housing affordability and limited supply in major cities
 - Homelessness and reliance on emergency/motel housing
