@@ -48,5 +48,10 @@ Here are the issues I think about that never seem to get sorted out. I have been
 - Immigration/workforce balancing and skill shortages
 - Local government financial strain and rate increases
 
+
+
+  <img width="158" height="263" alt="image" src="https://github.com/user-attachments/assets/2d1e7c29-5f44-4f75-a4d7-bd9b74847f86" />
+
+
 What matters to you? How do we do the voting rods? Email me.
 
