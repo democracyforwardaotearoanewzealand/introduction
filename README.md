@@ -13,7 +13,7 @@ The fundamental concept is that we are each one person. I am only one person. I 
 
 I got frustrated a while ago that parties here get voted in and end up doing whatever they want. And they don't stick to their promises. They try to do too much. And they end up not representing their voters. 
 
-There are 12 functions within DF, and I consider them the jewels of life: Knowledge, Wisdom, Understanding, Freedom, Justice, Equality, Food, CLothing, Shelter, Love, Peace, Happiness. I think each of the party members (I am not sure how many there are) might fit within one of these. I chose Understanding. Maybe one or more works for you based on your skills and conditioning ans passions.
+There are 12 functions within DF, and I consider them the jewels of life: Knowledge, Wisdom, Understanding, Freedom, Justice, Equality, Food, Clothing, Shelter, Love, Peace, Happiness. I think each of the party members (I am not sure how many there are) might fit within one of these. I chose Understanding. Maybe one or more works for you based on your skills and conditioning and passions.
 
 **What are the plans?** 
 
