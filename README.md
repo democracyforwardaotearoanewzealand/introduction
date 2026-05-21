@@ -52,12 +52,7 @@ Here are the issues I think about that never seem to get sorted out. I have been
 - Immigration/workforce balancing and skill shortages
 - Local government financial strain and rate increases
 
-
-  <img width="158" height="263" alt="image" src="https://github.com/user-attachments/assets/2d1e7c29-5f44-4f75-a4d7-bd9b74847f86" />
-
-Should we put Braille on them? Or would raised buttons be enough? 
-
-What matters to you? How do we do the voting rods? Email me.
+<img width="1024" height="1536" alt="ChatGPT Image May 22, 2026, 04_27_40 AM" src="https://github.com/user-attachments/assets/7baa2b16-0799-4017-bfd8-f036b0ae753b" />
 
 <img width="1536" height="1024" alt="ChatGPT Image May 22, 2026, 04_17_31 AM" src="https://github.com/user-attachments/assets/cb46d3a5-56d4-48bf-958b-e7e2b5d5facb" />
 
