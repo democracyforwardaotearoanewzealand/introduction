@@ -56,4 +56,6 @@ Here are the issues I think about that never seem to get sorted out. I have been
 
 <img width="287" height="422" alt="image" src="https://github.com/user-attachments/assets/e330bbfa-0c3e-4979-a706-213742af3ecf" />
 
-https://www.gets.govt.nz/ is the current tender system.
+https://www.gets.govt.nz/ is the current tender system that needs replacing.
+
+https://fasttrack.govt.nz/ is the current project system.
