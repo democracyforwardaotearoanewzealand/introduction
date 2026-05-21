@@ -52,9 +52,6 @@ Here are the issues I think about that never seem to get sorted out. I have been
 - Immigration/workforce balancing and skill shortages
 - Local government financial strain and rate increases
 
-<img width="600" height="800" alt="ChatGPT Image May 22, 2026, 04_27_40 AM" src="https://github.com/user-attachments/assets/7baa2b16-0799-4017-bfd8-f036b0ae753b" />
+<img width="376" height="250" alt="image" src="https://github.com/user-attachments/assets/ffffe19b-1447-4233-94e7-0722a05e37a0" />
 
-<img width="600" height="800" alt="ChatGPT Image May 22, 2026, 04_17_31 AM" src="https://github.com/user-attachments/assets/cb46d3a5-56d4-48bf-958b-e7e2b5d5facb" />
-
-
-
+<img width="287" height="422" alt="image" src="https://github.com/user-attachments/assets/e330bbfa-0c3e-4979-a706-213742af3ecf" />
