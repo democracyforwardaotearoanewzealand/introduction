@@ -59,4 +59,7 @@ Should we put Braille on them? Or would raised buttons be enough?
 
 What matters to you? How do we do the voting rods? Email me.
 
+<img width="1536" height="1024" alt="ChatGPT Image May 22, 2026, 04_17_31 AM" src="https://github.com/user-attachments/assets/cb46d3a5-56d4-48bf-958b-e7e2b5d5facb" />
+
+
 
