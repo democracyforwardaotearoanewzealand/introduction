@@ -28,7 +28,7 @@ So I like to find better ways to understand things. And that's like a muscle.
 
 But only when my daughter walked up to me once did I really start to learn how to understand things. She walked up to me once and asked me calmly: "What happen?"
 
-I still laugh when I think about that moment. But I am also still impressed by the sheer simplicity of the question. Maybe both. So maybe these three simple questions can help us understand anything in a very fundamental way:
+I still laugh when I think about that moment. And I am still impressed by the sheer simplicity of the question. So maybe these three simple questions can help us understand anything in a very fundamental way:
 
 - What happen?
 - What dis?
