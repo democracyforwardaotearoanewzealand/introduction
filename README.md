@@ -1,5 +1,4 @@
 # introduction
-What is DF? How does it work? What are the plans? How do I help?
 
 **What is DF?**
 
@@ -18,6 +17,24 @@ There are 12 functions within DF, and I consider them the jewels of life: Knowle
 People email ideas in. Every weekend the surveys are broadcast on FTA TV. People use the rods to vote. The votes are counted. The decision becomes policy. Then the decisions get implented.
 
 https://elections.nz/media-and-news/2026/2026-broadcasting-allocation-decision is important.
+
+**How do I understand the issues?**
+
+Good question. I can learn something from anyone. I consider myself an agile listener. And I never believe everything I read. That's called critical thinking. And aa lot of people will write and speak in a way that forces their views. And healthy discourse can stop that from happening. And the people involved will respect eachother more and understand eachother more if we have healthy discourse. 
+
+And healthy discourse involves being able to doubt things. And form our own viwes. 
+
+So I like to find better ways to understand things. And that's like a muscle. 
+
+But only when a toddler walked up to me once did I really learn how to look at things. She walked up to me one and asked me calmly: "What happen?"
+
+I still laught when I think f it. But I am still impressed by the sheer simplicity of the question. So I thought about it more, and realiased that these three simmple questions can help us understand anything in a very fundamental way. And that these three questions might be all we ever need to understand anything:
+
+**_What happen?
+What is dis?
+What next?_**
+
+I consider that everything can be understood in a time context: the past, the present, and tbe future. And certainly not beleving everything we read.  
 
 **What are the plans?** 
 
