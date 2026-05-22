@@ -28,13 +28,15 @@ So I like to find better ways to understand things. And that's like a muscle.
 
 But only when a toddler walked up to me once did I really learn how to look at things. She walked up to me one and asked me calmly: "What happen?"
 
-I still laught when I think f it. But I am still impressed by the sheer simplicity of the question. So I thought about it more, and realiased that these three simmple questions can help us understand anything in a very fundamental way. And that these three questions might be all we ever need to understand anything:
+I still laugh when I think about that moment. But I am also still impressed by the sheer simplicity of the question. Maybe both. So maybe these three simmple questions can help us understand anything in a very fundamental way. And that these three questions might be all we ever need to understand anything:
 
 **_What happen?
-What is dis?
+
+What dis?
+
 What next?_**
 
-I consider that everything can be understood in a time context: the past, the present, and tbe future. And certainly not beleving everything we read.  
+I consider that everything can be understood in a time context: the past, the present, and tbe future. And certainly not by beleving everything we read.  
 
 **What are the plans?** 
 
