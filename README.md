@@ -26,7 +26,7 @@ And healthy discourse involves being able to doubt things. And form our own viwe
 
 So I like to find better ways to understand things. And that's like a muscle. 
 
-But only when a toddler walked up to me once did I really learn how to look at things. She walked up to me one and asked me calmly: "What happen?"
+But only when my daughter walked up to me once did I really start to learn how to understand things. She walked up to me one and asked me calmly: "What happen?"
 
 I still laugh when I think about that moment. But I am also still impressed by the sheer simplicity of the question. Maybe both. So maybe these three simple questions can help us understand anything in a very fundamental way. And that these three questions might be all we ever need to understand anything:
 
