@@ -30,9 +30,9 @@ But only when a toddler walked up to me once did I really learn how to look at t
 
 I still laugh when I think about that moment. But I am also still impressed by the sheer simplicity of the question. Maybe both. So maybe these three simmple questions can help us understand anything in a very fundamental way. And that these three questions might be all we ever need to understand anything:
 
-**What happen?
-**What dis?
-**What next?
+- What happen?
+- What dis?
+- What next?
 
 I consider that everything can be understood in a time context: the past, the present, and tbe future. And certainly not by beleving everything we read.  
 
