@@ -20,9 +20,9 @@ https://elections.nz/media-and-news/2026/2026-broadcasting-allocation-decision i
 
 **How do I understand the issues?**
 
-Good question. I can learn something from anyone. I consider myself an agile listener. And I never believe everything I read. That's called critical thinking. And aa lot of people will write and speak in a way that forces their views. And healthy discourse can stop that from happening. And the people involved will respect eachother more and understand eachother more if we have healthy discourse. 
+Good question. I can learn something from anyone. I consider myself an agile listener. And I never believe everything I read. That's called critical thinking. And a lot of people will write and speak in a way that forces their views. And healthy discourse can stop that from happening. And the people involved will respect eachother more and understand eachother more if we have healthy discourse. 
 
-And healthy discourse involves being able to doubt things. And form our own viwes. 
+And healthy discourse involves being able to doubt things. And form our own views. 
 
 So I like to find better ways to understand things. And that's like a muscle. 
 
