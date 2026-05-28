@@ -79,16 +79,15 @@ DF is a standalone party. Standalone. Not coaligned with others. Some names may 
 
 DF is working with the Royal Family for donations/claims. I have claimed about $50B NZD from them, as some division of personal and political funds that I have not figured out:
 
-* My ACC claim - $200M
-* Ngapuhi claim - $6B.
-* US tarriff refunds - as Ngapuhi were less able to export culture - $10B.
-* China bonds to ensure a bright future - $30B.
-* A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty.
-* Pepsi royalty case - when Wellington region was acousticaslly traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - $4B.
+* My ACC claim - $200M NZD.
+* Ngapuhi claim - $6B NZD.
+* US tarriff refunds - as Ngapuhi were less able to export culture - $10B NZD.
+* China bonds to ensure a bright future - $30B NZD.
+* A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - ?$B NZD.
+* Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales are up and they have new billboards around Wellington. $4B NZD.
 .
 Democracy Forward is working with https://www.remoteoz.com/ for the remotes.
-
-https://www.gets.govt.nz/ is the current tender system that needs replacing
+https://www.gets.govt.nz/ is the current tender system that needs replacing.
 https://fasttrack.govt.nz/ is the current project system for MCERT.
 
-https://www.remoteoz.com/
+Democracy Forward Parliament Bench is located on Victoria St, Wellington (across from Pinnacle Apartments). I can't guarantee full-time attendance. Ready for discourse.
