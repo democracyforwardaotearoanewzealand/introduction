@@ -77,7 +77,7 @@ Here are the issues I think about that never seem to get sorted out. I have been
 
 DF is a standalone party. Standalone. Not coaligned with others. Some names may be listed on other party's websites. But they can be added. And sometimes they don't get deleted.
 
-DF is working with the Royal Family for donations/claims. I have claimed about $50B NZD from them, as some division of personal and political funds that I have not figured out:
+DF is working with the Royal Family for donations/claims. I have claimed the following through them, as some division of personal and political funds that I have not figured out yet:
 
 * My ACC claim - $200M NZD.
 * Ngapuhi claim - $6B NZD.
