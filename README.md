@@ -84,13 +84,14 @@ DF is working with the Royal Family for donations/claims. I have claimed the fol
 * US tarriff refunds - as Ngapuhi were less able to export culture - $10B NZD.
 * China bonds to ensure a bright future - $30B NZD.
 * A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - ?$B NZD.
-* Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales are up and they have new billboards around Wellington. $4B NZD.
-.
+* Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales mometum is up and they have new billboards around Wellington. $4B NZD.
+
 Democracy Forward is working with https://www.remoteoz.com/ for the remotes.
 
-The back-end has not been set up yet. None of the votes are official yet as far as I know.
+The IT back-end has not been set up yet. None of the votes are official yet as far as I know.
 
 https://www.gets.govt.nz/ is the current tender system that needs replacing.
+
 https://fasttrack.govt.nz/ is the current project system for MCERT.
 
 Democracy Forward Parliament Bench is located on Victoria St, Wellington (across from Pinnacle Apartments). I can't guarantee full-time attendance. Ready for discourse.
