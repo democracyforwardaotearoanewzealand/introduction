@@ -87,6 +87,9 @@ DF is working with the Royal Family for donations/claims. I have claimed about $
 * Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales are up and they have new billboards around Wellington. $4B NZD.
 .
 Democracy Forward is working with https://www.remoteoz.com/ for the remotes.
+
+The back-end has not been set up yet. None of the votes are official yet as far as I know.
+
 https://www.gets.govt.nz/ is the current tender system that needs replacing.
 https://fasttrack.govt.nz/ is the current project system for MCERT.
 
