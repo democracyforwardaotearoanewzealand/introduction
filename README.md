@@ -75,6 +75,16 @@ Here are the issues I think about that never seem to get sorted out. I have been
 
 <img width="605" height="399" alt="image" src="https://github.com/user-attachments/assets/141e62e4-2f33-4cf6-b9b7-3c5126cbaa96" />
 
+DF is a standalone party. Standalone. Not coaligned with others. Some names may be listed on other party's websites. But they can be added. And sometimes they don't get deleted.
+
+DF is working with the Royal Family for donations/claims. I have claimed about $50B NZD from them, as some division of personal and political funds that I have not figured out:
+
+* My ACC claim - $200M
+* Ngapuhi claim - $6B.
+* US tarriff refunds - as Ngapuhi were less able to export culture - $10B.
+* China bonds to ensure a bright future - $30B.
+* A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty.
+* Pepsi royalty case - when Wellington region was acousticaslly traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - $4B.
 .
 Democracy Forward is working with https://www.remoteoz.com/ for the remotes.
 
