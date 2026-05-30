@@ -12,7 +12,11 @@ Current plans are to distribute 5G or Starlink based voting rods to households, 
 
 Like a gameshow, but not at all a game.
 
-DF has a budget of $0.74c. Scott is alive only because of the community. MSD and ACC and such may be still plotting his death via democidal preferences.
+DF has a operating budget of $0.74c. Scott is alive only because of the community. MSD and ACC and such may be still plotting his death via democidal preferences.
+
+DF's income is $377.56 a week.
+DF has not received financial donations despite requests.
+DF does receive occasional food donations ensuring Scott continues to be alive.
 
 **How does it work?**
 
