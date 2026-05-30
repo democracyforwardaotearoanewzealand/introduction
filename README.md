@@ -1,6 +1,6 @@
 # introduction
 
-Democracy Forward HQ is Hamilton Chambers, Wellington (and surrounds).
+Democracy Forward HQ is Hamilton Chambers, 199 Lambton Quay, Wellington, NZ (and surrounds).
 
 **What is DF?**
 
