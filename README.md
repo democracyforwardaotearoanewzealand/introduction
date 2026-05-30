@@ -1,12 +1,12 @@
 # introduction
 
+Democracy Forward HQ is Hamilton Chambers, Wellington (and surrounds).
+
 **What is DF?**
 
 Current plans are to distribute 5G or Starlink based voting rods to households, so people can vote on a range of issues from their home. Every Saturday. Issues are presented on Free To Air TV. 
 
 Like a gameshow, but not at all a game.
-
-Democracy Forward is now based at 195B Lambton Quay, Te Aro, Wellington.
 
 **How does it work?**
 
