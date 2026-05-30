@@ -6,6 +6,8 @@
 
 31/05/2026: NZSIS have been informed of political interference surrounding a locksmith request for Hamilton Chambers. This led to Scott not being able to sleep inside DF HQ on opening night.
 
+31/05/2026: DF is aware of political subterfuge by those subjecting Kiwibank to Sunday trading restrictions leading to DF not being able to review the budget in full.
+
 **What is DF?**
 
 Current plans are to distribute 5G or Starlink based voting rods to households, so people can vote on a range of issues from their home. Every Saturday. Issues are presented on Free To Air TV. 
