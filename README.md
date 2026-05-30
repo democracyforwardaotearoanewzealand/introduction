@@ -1,8 +1,9 @@
 # introduction
 
-**Recent Events**
+**Recent Events and Incidents**
 
 31/05/2026: Democracy Forward HQ is Hamilton Chambers, 199 Lambton Quay, Wellington, NZ (and surrounds). Some eminent Hamilton dignatories further endorsed the site this morning.
+31/05/2026: NZSIS have been informed of political interference surrounding a locksmith request for Hamilton Chambers. This led to Scott not being able to sleep inside DF HQ on opening night.
 
 **What is DF?**
 
