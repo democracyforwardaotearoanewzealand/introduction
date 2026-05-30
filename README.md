@@ -12,6 +12,8 @@ Current plans are to distribute 5G or Starlink based voting rods to households, 
 
 Like a gameshow, but not at all a game.
 
+DF has a budget of $0.74c. Scott is alive only because of the community. MSD and ACC and such may be still plotting his death via democidal preferences.
+
 **How does it work?**
 
 The fundamental concept is that we are each one person. I am only one person. I get one say. We all have opinions. Sometimes we disagree and argue. But that's how it works. Opinions are a very good thing. Caring for Aotearoa New Zealand comes from a very good place. It means we want to have a say. And we all deserve one.
