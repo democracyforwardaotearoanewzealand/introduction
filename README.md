@@ -6,6 +6,8 @@ Current plans are to distribute 5G or Starlink based voting rods to households, 
 
 Like a gameshow, but not at all a game.
 
+Democracy Forward is now based at 195B Lambton Quay, Te Aro, Wellington.
+
 **How does it work?**
 
 The fundamental concept is that we are each one person. I am only one person. I get one say. We all have opinions. Sometimes we disagree and argue. But that's how it works. Opinions are a very good thing. Caring for Aotearoa New Zealand comes from a very good place. It means we want to have a say. And we all deserve one.
@@ -93,5 +95,3 @@ The IT back-end has not been set up yet. None of the votes are official yet as f
 https://www.gets.govt.nz/ is the current tender system that needs replacing.
 
 https://fasttrack.govt.nz/ is the current project system for MCERT.
-
-Democracy Forward Parliament Bench is located on Victoria St, Wellington (across from Pinnacle Apartments). I can't guarantee full-time attendance. Ready for discourse.
