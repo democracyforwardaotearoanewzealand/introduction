@@ -10,7 +10,7 @@
 
 31/05/2026: Three locksmiths have not arrived or responded. The Mayor did not respond to a request to arrange  the work. As at 1:05PM I await a fourth locksmith to reply via email.
 
-1/06/2026: Police on the beat said a Civil DIspute may be needed. This would keep the Courts busy but would still not get me a locksmith. And it would waste my time.
+1/06/2026: Police on the beat said a Civil DIspute may be needed. This would keep the Courts busy but would still not get me a locksmith. And it would waste my time. I have contacted the Greens and Maori Party as I wish to work with adults.
 
 **What is DF?**
 
