@@ -8,7 +8,7 @@
 
 31/05/2026: DF is aware of financial misconduct by those subjecting Kiwibank to Sunday trading restrictions leading to DF not being able to review the DF budget in full.
 
-31/05/2026: Three locksmiths have not arrived. The Mayor did not respond to a request to do the work. I await a fourth locksmith to reply via email.
+31/05/2026: Three locksmiths have not arrived or responded. The Mayor did not respond to a request to arrange  the work. As at 1:05PM I await a fourth locksmith to reply via email.
 
 **What is DF?**
 
