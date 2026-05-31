@@ -30,7 +30,7 @@ DF does receive occasional food donations ensuring Scott continues to be alive.
 
 **How will DF be funded?**
 
-DF is working with the Royal Family for donations/claims. Scott has claimed the following through them, as some division of personal and political funds that I have not figured out yet:
+DF is working with the Royal Family for donations/claims. Scott has claimed the following through them, as some division of personal and political funds:
 
 * My ACC claim - $200M NZD.
 * Ngapuhi claim - $6B NZD.
