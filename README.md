@@ -2,9 +2,9 @@
 
 **Recent Events and Incidents**
 
-31/05/2026: Democracy Forward HQ is Hamilton Chambers, 199 Lambton Quay, Wellington, NZ (and surrounds). Some eminent Hamilton dignatories further endorsed the site this morning.
+* 31/05/2026: Democracy Forward HQ is Hamilton Chambers, 199 Lambton Quay, Wellington, NZ (and surrounds). Some eminent Hamilton dignatories further endorsed the site this morning.
 
-31/05/2026: NZSIS have been informed of political interference surrounding a locksmith request for Hamilton Chambers. This led to Scott not being able to sleep inside DF HQ on opening night.
+* 31/05/2026: NZSIS have been informed of political interference surrounding a locksmith request for Hamilton Chambers. This led to Scott not being able to sleep inside DF HQ on opening night.
 
 31/05/2026: DF is aware of financial misconduct by those subjecting Kiwibank to Sunday trading restrictions leading to DF not being able to review the DF budget in full. I cannot print all my accounts on any ATM. And the branch is closed.
 
