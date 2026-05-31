@@ -10,6 +10,8 @@
 
 31/05/2026: Three locksmiths have not arrived or responded. The Mayor did not respond to a request to arrange  the work. As at 1:05PM I await a fourth locksmith to reply via email.
 
+1/06/2026: Police on the beat said a Civil DIspute may be needed. This would keep the Courts busy but would still not get me a locksmith. And it would waste my time.
+
 **What is DF?**
 
 Current plans are to distribute 5G or Starlink based voting rods to households, so people can vote on a range of issues from their home. Every Saturday. Issues are presented on Free To Air TV. 
