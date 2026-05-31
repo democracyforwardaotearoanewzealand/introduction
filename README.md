@@ -12,7 +12,7 @@
 
 * 1/06/2026: Police on the beat said a Civil DIspute may be needed. This would keep the Courts busy but would still not get me a locksmith. And it would waste my time. I have contacted the Greens and Maori Party as I wish to work with adults.
 
-* 1/06/2026: I have requested that Police arrest Chris Luxon and Andrew Little and charge them with perverting the course of justice: https://www.nzlii.org/nz/legis/consol_act/ca196182/s116.html regarding my ACC claim, my Ngapuhi claim, et al.
+* 1/06/2026: I have requested that Police arrest Chris Luxon and Andrew Little and charge them with perverting the course of justice: https://www.nzlii.org/nz/legis/consol_act/ca196182/s116.html regarding my ACC claim, my Ngāpuhi claim, et al.
 
 
 **What is DF?**
