@@ -6,50 +6,49 @@
 
 * 31/05/2026: NZSIS have been informed of political interference surrounding a locksmith request for Hamilton Chambers. This led to Scott not being able to sleep inside DF HQ on opening night.
 
-31/05/2026: DF is aware of financial misconduct by those subjecting Kiwibank to Sunday trading restrictions leading to DF not being able to review the DF budget in full. I cannot print all my accounts on any ATM. And the branch is closed.
+* 31/05/2026: DF is aware of financial misconduct by those subjecting Kiwibank to Sunday trading restrictions leading to DF not being able to review the DF budget in full. I cannot print all my accounts on any ATM. And the branch is closed.
 
-31/05/2026: Three locksmiths have not arrived or responded. The Mayor did not respond to a request to arrange  the work. As at 1:05PM I await a fourth locksmith to reply via email.
+* 31/05/2026: Three locksmiths have not arrived or responded. The Mayor did not respond to a request to arrange  the work. As at 1:05PM I await a fourth locksmith to reply via email.
 
-1/06/2026: Police on the beat said a Civil DIspute may be needed. This would keep the Courts busy but would still not get me a locksmith. And it would waste my time. I have contacted the Greens and Maori Party as I wish to work with adults.
+* 1/06/2026: Police on the beat said a Civil DIspute may be needed. This would keep the Courts busy but would still not get me a locksmith. And it would waste my time. I have contacted the Greens and Maori Party as I wish to work with adults.
 
 **What is DF?**
 
-Current plans are to distribute 5G or Starlink based voting rods to households, so people can vote on a range of issues from their home. Every Saturday. Issues are presented on Free To Air TV. 
+* Current plans are to distribute 5G or Starlink based voting rods to households, so people can vote on a range of issues from their home. Every Saturday. Issues are presented on Free To Air TV. 
 
-Like a gameshow, but not at all a game.
+* Like a gameshow, but not at all a game.
 
 **What is DF's budget?**
 
-DF has a operating budget of $0.74c. Scott is alive only because of the community. MSD and ACC and such may be still plotting his death via democidal preferences.
-
-DF's income is $377.56 a week (from MSD, sometimes).
-MSD do not allow Scott to get Food Grants. 
-MSD shows that Scott's TAS payment is both suspended and active.
-DF has not received financial donations despite requests.
-DF does receive occasional food donations ensuring Scott continues to be alive.
+* DF has a operating budget of $0.74c. Scott is alive only because of the community. MSD and ACC and such may be still plotting his death via democidal preferences.
+* DF's income is $377.56 a week (from MSD, sometimes).
+* MSD do not allow Scott to get Food Grants.
+* MSD shows that Scott's TAS payment is both suspended and active.
+* DF has not received financial donations despite requests.
+* DF does receive occasional food donations ensuring Scott continues to be alive.
 
 **How will DF be funded?**
 
-DF is working with the Royal Family for donations/claims. Scott has claimed the following through them, as some division of personal and political funds:
+DF is working with the Royal Family for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered:
 
-* Personal ACC claim - $200M NZD.
-* Ngapuhi claim - $6B NZD.
-* US tariff refunds - as Ngapuhi were less able to export culture - $10B NZD.
-* China bonds to ensure a bright future - $30B NZD.
-* A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - $12B NZD.
-* Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales mometum is up and they have new billboards around Wellington. $4B NZD.
+- Personal ACC claim - $200M NZD.
+- Ngapuhi claim - $6B NZD.
+- US tariff refunds - as Ngapuhi were less able to export culture - $10B NZD.
+- China bonds to ensure a bright future - $30B NZD.
+- A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - $12B NZD.
+- Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales mometum is up and they have new billboards around Wellington. $4B NZD.
 
 **How does it work?**
 
-The fundamental concept is that we are each one person. I am only one person. I get one say. We all have opinions. Sometimes we disagree and argue. But that's how it works. Opinions are a very good thing. Caring for Aotearoa New Zealand comes from a very good place. It means we want to have a say. And we all deserve one.
+* The fundamental concept is that we are each one person. I am only one person. I get one say. We all have opinions. Sometimes we disagree and argue. But that's how it works. Opinions are a very good thing. Caring for Aotearoa New Zealand comes from a very good place. It means we want to have a say. And we all deserve one.
 
-I got frustrated a while ago that parties here get voted in and end up doing whatever they want. And they don't stick to their promises. They try to do too much. And they end up not representing their voters. 
+* I got frustrated a while ago that parties here get voted in and end up doing whatever they want. And they don't stick to their promises. They try to do too much. And they end up not representing their voters. 
 
-There are 12 functions within DF, and I consider them the jewels of life: Knowledge, Wisdom, Understanding, Freedom, Justice, Equality, Food, Clothing, Shelter, Love, Peace, Happiness. I think each of the party members (I am not sure how many there are) might fit within one of these. I chose Understanding. Maybe one or more works for you based on your skills and conditioning and passions.
+* There are 12 functions within DF, and I consider them the jewels of life: Knowledge, Wisdom, Understanding, Freedom, Justice, Equality, Food, Clothing, Shelter, Love, Peace, Happiness. I think each of the party members (I am not sure how many there are) might fit within one of these. I chose Understanding. Maybe one or more works for you based on your skills and conditioning and passions.
 
-People email ideas in. Every weekend the surveys are broadcast on FTA TV. People use the rods to vote. The votes are counted. The decision becomes policy. Then the decisions get implented.
+* People email ideas in. Every weekend the surveys are broadcast on FTA TV. People use the rods to vote. The votes are counted. The decision becomes policy. Then the decisions get implented.
 
-https://elections.nz/media-and-news/2026/2026-broadcasting-allocation-decision is important.
+* https://elections.nz/media-and-news/2026/2026-broadcasting-allocation-decision is important.
 
 **How do I understand the issues?**
 
@@ -110,7 +109,7 @@ Here are the issues I think about that never seem to get sorted out. I have been
 
 DF is a standalone party. Standalone. Not coaligned with others. Some names may be listed on other party's websites. But they can be added. And sometimes they don't get deleted.
 
-Democracy Forward is working with https://www.remoteoz.com/ for the remotes.
+Democracy Forward is working with https://www.remoteoz.com/ for the remotes and has reached out to Elon Musk for more Starlionk launches.
 
 The IT back-end has not been set up yet. None of the votes are official yet as far as I know.
 
