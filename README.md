@@ -6,7 +6,7 @@
 
 31/05/2026: NZSIS have been informed of political interference surrounding a locksmith request for Hamilton Chambers. This led to Scott not being able to sleep inside DF HQ on opening night.
 
-31/05/2026: DF is aware of financial misconduct by those subjecting Kiwibank to Sunday trading restrictions leading to DF not being able to review the DF budget in full.
+31/05/2026: DF is aware of financial misconduct by those subjecting Kiwibank to Sunday trading restrictions leading to DF not being able to review the DF budget in full. I cannot print all my accounts on any ATM. And the branch is closed.
 
 31/05/2026: Three locksmiths have not arrived or responded. The Mayor did not respond to a request to arrange  the work. As at 1:05PM I await a fourth locksmith to reply via email.
 
