@@ -32,11 +32,11 @@ DF does receive occasional food donations ensuring Scott continues to be alive.
 
 DF is working with the Royal Family for donations/claims. Scott has claimed the following through them, as some division of personal and political funds:
 
-* My ACC claim - $200M NZD.
+* Personal ACC claim - $200M NZD.
 * Ngapuhi claim - $6B NZD.
-* US tarriff refunds - as Ngapuhi were less able to export culture - $10B NZD.
+* US tariff refunds - as Ngapuhi were less able to export culture - $10B NZD.
 * China bonds to ensure a bright future - $30B NZD.
-* A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - ?$B NZD.
+* A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - $12B NZD.
 * Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales mometum is up and they have new billboards around Wellington. $4B NZD.
 
 **How does it work?**
