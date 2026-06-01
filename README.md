@@ -2,6 +2,8 @@
 
 **Do I still have to attend court on the 3rd June and 12th June for the Shoplifting charge, National? Perhaps the outdoor performances that you call other things?** 
 
+**Is Andrew Little alive? Because he is awfully quiet.** 
+
 Read this page and then let me know. Because there is other stuff.
 
 **Last 24 hours**
