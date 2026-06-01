@@ -3,7 +3,7 @@
 Politics: "the way we are".
 
 
-**People in Wellington NZ have been having several discussions about the empty buildings in town. I stand by my hypothesis that the 5M people in NZ could be housed, fed, cared for, and would fit into Wellington and its buildings. But we still have homeless people. And people who can't afford their mortgages in the suburbs. And people who can't afford rent. Or food. Or clothes. Or medicine. What to do? Do we need locksmiths? Or on this very 2nd June, can we get access otherwise? Who's to say?**
+**People in Wellington NZ have been having several discussions about the empty buildings in town. I stand by my hypothesis that the 5M people in NZ could be housed, fed, cared for, and would fit into Wellington and its buildings. But we still have homeless people. And people who can't afford their mortgages in the suburbs. And people who can't afford rent. Or food. Or clothes. Or medicine. What to do? Do we need locksmiths? Or on this very 2nd June, can we get access otherwise? Who's to say? There are lobbies.**
 
 **I have court hearings on 3rd June and 12th June for 4 things. Some call them charges. I have a clean criminal record. But some drag humans through the systems on charges, not crimes. They did it to me. Those 4 things are: Shoplifting, and Wilful Trespass (x3).**
 
