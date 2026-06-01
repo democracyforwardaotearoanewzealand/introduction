@@ -34,10 +34,14 @@
 * MSD shows that Scott's TAS payment is both suspended and active.
 * DF has not received financial donations despite requests.
 * DF does receive occasional food donations ensuring Scott continues to be alive.
+* Need I remind you that this is happening a few hundred metres from the Beehive?
+* Need I remind you that this is happening during a global media blackout about me?
+
+  Something's going on here...........
 
 **How will DF be funded?**
 
-DF is working with the Royal Family for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered:
+DF is working with the Royal Family and others for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered:
 
 - Personal ACC claim - $200M NZD.
 - Ngapuhi claim - $6B NZD.
