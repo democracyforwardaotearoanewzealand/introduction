@@ -28,7 +28,7 @@ Read this page and then let me know. Because there is other stuff.
 
 * 1/06/2026: Mayor Andrew Little was again invited outside and for comment but neither are forthcoming or apparent.
 
-* 1/06/2026: While sleeping in the Wellington train station I got rudely and needlessly woken up by an Allied Security staff member (at 1AM) with nothing else to do while on shift but to perform sleep deprivation tasks on someone. WCC and GWRC are closely linked to Allied Security. Andrew Little is still unable or unwilling to meet. Need I remind that this round of pathetic behaviours started over a $400-500 locksmith job that was politically tinkered with by WCC instead of enabled?
+* 1/06/2026: While sleeping in the Wellington train station I got rudely and needlessly woken up by an Allied Security staff member (at 1AM) with nothing else to do while on shift but to perform sleep deprivation tasks on someone. WCC and GWRC and Metlink are closely linked to Allied Security. NZ First have been known in the past to be National's "surveillance wing". Andrew Little is still unable or unwilling to meet. Need I remind that this round of pathetic behaviours started over a $400-500 locksmith job that was politically tinkered with by WCC instead of enabled?
 
 **Overview**
 
