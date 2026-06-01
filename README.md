@@ -18,7 +18,7 @@
 
 * 1/06/2026: I was fed tonight and fed well by the community. After 18 months now, this is yet another week where I would be dead if I relied solely on ACC processing my claim.
 
-* 1/06/2026: A plan was shared with DF/GP/MP to enter lobbies of buildings and read the WOF sheet and then invite property owners to help us get food and equipment out of the buildings and share them with the community.
+* 1/06/2026: A plan was shared with DF/GP/MP (Democracy Forward / Green Party / Maori Party) to enter lobbies of buildings and read the WOF sheet and then contact and invite property owners and others to get food and unused equipment and items out of the buildings and share them with the community.
 
 * 1/06/2026: Mayor Andrew Little was again invited outside and for comment but neither are forthcoming or apparent.
 
