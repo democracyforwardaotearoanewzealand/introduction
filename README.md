@@ -28,13 +28,13 @@ Read this page and then let me know. Because there is other stuff.
 
 * 1/06/2026: Mayor Andrew Little was again invited outside and for comment but neither are forthcoming or apparent.
 
-* 1/06/2026: I got rudely and needlessly woken up by an Allied Security staff member with nothing else to do while on shift but to perform sleep deprivation tasks on someone. WCC and GWRC are closely linked to Allied Security. Andrew Little is still unable or unwilling to meet. 
+* 1/06/2026: While sleeping in the Wellington train station I got rudely and needlessly woken up by an Allied Security staff member (at 1AM) with nothing else to do while on shift but to perform sleep deprivation tasks on someone. WCC and GWRC are closely linked to Allied Security. Andrew Little is still unable or unwilling to meet. Need I remind that this round of pathetic behaviours started over a $400-500 locksmith job that was politically tinkered with by WCC instead of enabled?
 
 **Overview**
 
 * Current plans are to distribute 5G or Starlink based voting rods to households, so people can vote on a range of issues from their home. Every Saturday. Issues are presented on Free To Air TV. 
 
-* Like a gameshow, but not at all a game.
+* Like a gameshow, but not at all a game.*
 
 **Finances**
 
