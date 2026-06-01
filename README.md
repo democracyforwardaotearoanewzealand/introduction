@@ -14,7 +14,7 @@
 
 * 1/06/2026: I have requested that Police arrest Chris Luxon and Andrew Little and Nicola Willis and charge them with perverting the course of justice: https://www.nzlii.org/nz/legis/consol_act/ca196182/s116.html regarding my ACC claim, my Ngāpuhi claim, et al.
 
-* 1/06/2026: I have reached out to Farry's menswear as they moved around the corner. They might have the key.
+* 1/06/2026: I have reached out to Farry's menswear as they moved a few hundred metres from Hamilton Chambers not long ago. They might have the key.
 
 
 **What is DF?**
