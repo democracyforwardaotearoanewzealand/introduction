@@ -1,4 +1,8 @@
-# introduction
+# introduction 
+
+**Do I still have to attend court on the 3rd June and 12th June for the Shoplifting charge, National? Perhaps the outdoor performances that you call other things?** 
+
+Let me know.
 
 **Last 24 hours**
 
@@ -43,9 +47,6 @@
 * Need I remind you that this is happening during a global media blackout about me?
 * Need I remind you that I am surrounded by skyscrapers that have virtually no people in them (if any) and are packed with food and equipment and supplies that was left behind by people who never really cared that much about NZ?
 * Is it a little too hard to admit what happened, National?
-
-***Do I still have to attend court on the 3rd June and 12th June for the Shoplifting charge, National? Perhaps the outdoor performances that you call other things? 
-***
 
 **Funding**
 
