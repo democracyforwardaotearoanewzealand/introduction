@@ -42,6 +42,8 @@ Read this page and then let me know. Because there is other stuff.
 * 2/06/2026: While sleeping in the Wellington train station I got rudely and needlessly woken up by an Allied Security staff member (at 1AM) with nothing else to do while on shift but to perform sleep deprivation tasks on someone. WCC and GWRC and Metlink are closely linked to Allied Security. NZ First have been known in the past to be National's "surveillance wing". Andrew Little is still unable or unwilling to meet. Need I remind that this round of pathetic behaviours started over a $400-500 locksmith job that was politically tinkered with by WCC instead of enabled?
 
 * 2/06/2026: After a public speech out the front of Hamilton Chambers at 3AM, McDonald's staff have arrived and are assisting with the unloading of an enornous amount of goods from 3 trucks. Capitalism has the capacity to provide when given the correct thump. I expect it's going to be quite a morning. Happy to watch.
+
+* 2/06/2026: I have discussed the situation with local retailers. As at 11:30AM I am waiting on a key, and some quotes. The Stone of Patience remains in place at this time.
   
 
 **Overview**
