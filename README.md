@@ -1,6 +1,6 @@
 # introduction
 
-**Recent Events and Incidents**
+**Last 24 hours**
 
 * 31/05/2026: Democracy Forward HQ is Hamilton Chambers, 199 Lambton Quay, Wellington, NZ (and surrounds). Some eminent Hamilton dignatories further endorsed the site this morning.
 
@@ -18,15 +18,13 @@
 
 * 1/06/2026: I was fed tonight and fed well by the community. After 18 months now, this is yet another week where I would be dead if I relied solely on ACC processing my claim.
 
-
-
-**What is DF?**
+**Overview**
 
 * Current plans are to distribute 5G or Starlink based voting rods to households, so people can vote on a range of issues from their home. Every Saturday. Issues are presented on Free To Air TV. 
 
 * Like a gameshow, but not at all a game.
 
-**What is DF's budget?**
+**Finances**
 
 * DF has a operating budget of $0.74c. Scott is alive only because of the community. MSD and ACC and such may be still plotting his death via democidal preferences.
 * DF's income is $377.56 a week (from MSD, sometimes).
@@ -34,12 +32,15 @@
 * MSD shows that Scott's TAS payment is both suspended and active.
 * DF has not received financial donations despite requests.
 * DF does receive occasional food donations ensuring Scott continues to be alive.
+
+**Questions**
+
 * Need I remind you that this is happening a few hundred metres from the Beehive?
 * Need I remind you that this is happening during a global media blackout about me?
+* Need I remind you that I am surrounded by skyscrapers that have virtually no people in them (if any) and are packed with food that was left behind by people who never really cared that much about NZ?
+* Is it a little too hard to admit what happened, National?
 
-  Something's going on here...........
-
-**How will DF be funded?**
+**Funding**
 
 DF is working with the Royal Family and others for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered:
 
@@ -50,7 +51,7 @@ DF is working with the Royal Family and others for donations/claims. Scott has c
 - A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - $12B NZD.
 - Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales mometum is up and they have new billboards around Wellington. $4B NZD.
 
-**How does it work?**
+**Party Details**
 
 * The fundamental concept is that we are each one person. I am only one person. I get one say. We all have opinions. Sometimes we disagree and argue. But that's how it works. Opinions are a very good thing. Caring for Aotearoa New Zealand comes from a very good place. It means we want to have a say. And we all deserve one.
 
@@ -62,7 +63,7 @@ DF is working with the Royal Family and others for donations/claims. Scott has c
 
 * https://elections.nz/media-and-news/2026/2026-broadcasting-allocation-decision is important.
 
-**How do I understand the issues?**
+**Discourse**
 
 Good question. I can learn something from anyone. I consider myself an agile listener. And I never believe everything I read. That's called critical thinking. And a lot of people will write and speak in a way that forces their views. And healthy discourse can stop that from happening. And the people involved will respect eachother more and understand eachother more if we have healthy discourse. 
 
@@ -80,13 +81,13 @@ I still laugh when I think about that moment. And I am still impressed by the sh
 
 I consider that everything can be understood in a time context: the past, the present, and tbe future. And certainly not by beleving everything we read.  
 
-**What are the plans?** 
+**Constraints** 
 
 The 5G and Starlink voting rods are going to be tricky. I have a 30 year Cyber background and I don't have all the answers or all the solutions. And that's how it works. But we have to be able to talk about things in a healthy way. And I want it to be fair. And so we have a place that is what we want it to be. 
 
 Fairness means that the voting rods are randomly sent out, the barcodes and serials are not tracked, and votes are as close to anonymous as humnanly possible. Because without anonymity, favouritism and corruption kicks in, quickly. 
 
-**How do I help?**
+**Contributions**
 
 Have a think about what matters to you. What would you vote on? Have some healthy chats with eachother. Some healthy discourse. All sorts of issues matter. We won't need to vote on everything that happens. But we all deserve to have our voice respected. And that's what it's all about.
 
