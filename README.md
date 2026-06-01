@@ -44,6 +44,9 @@
 * Need I remind you that I am surrounded by skyscrapers that have virtually no people in them (if any) and are packed with food and equipment and supplies that was left behind by people who never really cared that much about NZ?
 * Is it a little too hard to admit what happened, National?
 
+***Do I still have to attend court on the 3rd June and 12th June for the Shoplifting charge, National? Perhaps the outdoor performances that you call other things? 
+***
+
 **Funding**
 
 DF is working with the Royal Family and others for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered:
