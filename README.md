@@ -8,7 +8,9 @@ Politics: "the way we are".
 
 **I was homeless, stressed, sleep-deprived, hungry, and my human rights were under assault when I did the apparent "Wilful Trespass" acts. Do I still have to attend court on the 3rd June and 12th June for those, Natiional?**
 
-**Is Andrew Little alive? Because he is awfully quiet.** 
+**Is Andrew Little alive? Because he is awfully quiet.**
+
+**Can we please check our privilege, whanau? We are very safe physically. But society has veneers. And each of us are not the only psycho in town.**
 
 Read this page and then let me know. Because there is other stuff.
 
@@ -34,7 +36,10 @@ Read this page and then let me know. Because there is other stuff.
 
 * 1/06/2026: Mayor Andrew Little was again invited outside and for comment but neither are forthcoming or apparent.
 
-* 1/06/2026: While sleeping in the Wellington train station I got rudely and needlessly woken up by an Allied Security staff member (at 1AM) with nothing else to do while on shift but to perform sleep deprivation tasks on someone. WCC and GWRC and Metlink are closely linked to Allied Security. NZ First have been known in the past to be National's "surveillance wing". Andrew Little is still unable or unwilling to meet. Need I remind that this round of pathetic behaviours started over a $400-500 locksmith job that was politically tinkered with by WCC instead of enabled?
+* 2/06/2026: While sleeping in the Wellington train station I got rudely and needlessly woken up by an Allied Security staff member (at 1AM) with nothing else to do while on shift but to perform sleep deprivation tasks on someone. WCC and GWRC and Metlink are closely linked to Allied Security. NZ First have been known in the past to be National's "surveillance wing". Andrew Little is still unable or unwilling to meet. Need I remind that this round of pathetic behaviours started over a $400-500 locksmith job that was politically tinkered with by WCC instead of enabled?
+
+* 2/06/2026: After a public speech out the front of Hamilton Chambers at 3AM, McDonald's staff have arrived and are assisting with the unloading of 3 trucks. Capitalism has the capacity to provide when given the correct thump.
+  
 
 **Overview**
 
