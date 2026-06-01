@@ -1,6 +1,12 @@
-# introduction 
+# introduction
+
+Politics: "the way we are".
+
+**I have court hearings on 3rd June and 12th June for 4 things. Some call them charges. I have a clean criminal record. But some drag humans through the systems on charges, not crimes. They did it to me. Those 4 things are: Shoplifting, and Wilful Trespass (x3).**
 
 **Do I still have to attend court on the 3rd June and 12th June for the Shoplifting charge, National? Perhaps the outdoor performances that you call other things?** 
+
+**I was homeless, stressed, sleep-deprived, hungry, and my human rights were under assault when I did the apparent "Wilful Trespass" acts. Do I still have to attend court on the 3rd June and 12th June for those, Natiional?**
 
 **Is Andrew Little alive? Because he is awfully quiet.** 
 
