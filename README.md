@@ -16,6 +16,9 @@
 
 * 1/06/2026: I have reached out to Farry's menswear as they moved a few hundred metres from Hamilton Chambers not long ago. They might have the key.
 
+* 1/06/2026: I was fed tonight and fed well by the community. After 18 months now, this is yet another week where I would be dead if I relied solely on ACC processing my claim.
+
+
 
 **What is DF?**
 
