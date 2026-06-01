@@ -11,7 +11,7 @@ Politics: "the way we are".
 
 **I was homeless, stressed, sleep-deprived, hungry, and my human rights were under assault when I did the apparent "Wilful Trespass" acts. Do I still have to attend court on the 3rd June and 12th June for those, Natiional?**
 
-**Is Andrew Little alive? Because he is awfully quiet.**
+**Is Andrew Little alive? Because he is awfully quiet. Ben McNulty has been included in this situation.**
 
 **Can we please check our privilege, whanau? We are very safe physically. But society has veneers. And each of us are not the only psycho in town.**
 
