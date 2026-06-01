@@ -2,7 +2,7 @@
 
 **Do I still have to attend court on the 3rd June and 12th June for the Shoplifting charge, National? Perhaps the outdoor performances that you call other things?** 
 
-Let me know.
+Read this page and then let me know.
 
 **Last 24 hours**
 
