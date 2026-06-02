@@ -44,6 +44,8 @@ Read this page and then let me know. Because there is other stuff.
 * 2/06/2026: After a public speech out the front of Hamilton Chambers at 3AM, McDonald's staff have arrived and are assisting with the unloading of an enornous amount of goods from 3 trucks. Capitalism has the capacity to provide when given the correct thump. I expect it's going to be quite a morning. Happy to watch.
 
 * 2/06/2026: I have discussed the situation with local retailers. As at 11:30AM I am waiting on a key, and some quotes. The Stone of Patience remains in place at this time.
+
+* 2/06/2026: I have been again fed by whanau at Woolies across the road. MSD will pay me $377 tomorrow.
   
 
 **Overview**
