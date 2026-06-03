@@ -2,7 +2,7 @@
 
 Politics: "the way we are".
 
-https://scottradvan.substack.com/p/a-better-nz-legal-system shows DF's legal system redesign. All of this could fit into the Supreme Court building in Thorndon. But instead Labrat Politics are conducted and architected by National upon the few.
+https://scottradvan.substack.com/p/a-better-nz-legal-system shows DF's legal system redesign. All of this could fit into the Supreme Court building in Thorndon. But instead of enacting real change, the jurisdictional calamity continues, and Labrat Politics are conducted and architected by National upon the few.
 
 National party members and faithful have repeatedly tried to kill me, block DF's registration, its progress, its welcome, and are still blocking its funding. SFO, NZSIS, Police, and the Royal Family have been informed (again).
 
