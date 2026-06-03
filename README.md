@@ -2,7 +2,7 @@
 
 Politics: "the way we are".
 
-https://scottradvan.substack.com/p/a-better-nz-legal-$ed to kill me, block DF's registration, its progress, its welcome, and are still blocking its funding. SFO, NZSIS, Police, and the Royal Family have been informed (again).
+National Party members and faithful have repeatedly tried to kill me, block DF's registration, its progress, its welcome, and are still blocking its funding. SFO, NZSIS, Police, and the Royal Family have been informed (again).
 
 **People in Wellington NZ have been having several discussions about the empty buildings in town. I stand by my hypothesis that the 5M people in NZ could be housed, fed, cared for, and would fit into Wellington and its buildings. But we still have homeless people sleeping outside not just offices on ground floor, but outside empty skyscrapers. And we have people who can't afford their mortgages. And people who can't afford rent. Or food. Or clothes. Or medicine. What to do? Do we need locksmiths? Or on this very 2nd June, can we get access otherwise? Who's to say? There are lobbies. And buildings have stuff in them. Do we need to build new hospitals and schools, National? Or is it time to repurpose?**
 
