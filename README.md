@@ -1,78 +1,10 @@
 # introduction
 
-Politics: "the way we are".
-
-https://scottradvan.substack.com/ for more redesigns and diagrams. MCERT, Legal system, etc.
-
-National Party members and faithful have repeatedly tried to kill me, block DF's registration, its progress, its welcome, and are still blocking its funding. SFO, NZSIS, Police, and the Royal Family have been informed (again).
-
-**People in Wellington NZ have been having several discussions about the empty buildings in town. I stand by my hypothesis that the 5M people in NZ could be housed, fed, cared for, and would fit into Wellington and its buildings. But we still have homeless people sleeping outside not just offices on ground floor, but outside empty skyscrapers. And we have people who can't afford their mortgages. And people who can't afford rent. Or food. Or clothes. Or medicine. What to do? Do we need locksmiths? Or on this very 2nd June, can we get access otherwise? Who's to say? There are lobbies. And buildings have stuff in them. Do we need to build new hospitals and schools, National? Or is it time to repurpose?**
-
-**I have court hearings on 3rd June and 12th June for 4 things. Some call them charges. I have a clean criminal record. But some drag humans through the systems on charges, not crimes. They did it to me. Those 4 things are: Shoplifting, and Wilful Trespass (x3).**
-
-**Do I still have to attend court on the 3rd June and 12th June for the Shoplifting charge, National? Perhaps the outdoor performances that you call other things?** 
-
-**I was homeless, stressed, sleep-deprived, hungry, and my human rights were under assault when I did the apparent "Wilful Trespass" acts. Do I still have to attend court on the 3rd June and 12th June for those, Natiional?**
-
-**Is Andrew Little alive? Because he is awfully quiet. Ben McNulty has been included in this situation.**
-
-**Can we please check our privilege, whanau? We are very safe physically. But society has veneers. And each of us are not the only psycho in town.**
-
-Read this page and then let me know. Because there is other stuff.
-
-**Last 24 hours**
-
-* 31/05/2026: Democracy Forward HQ is Hamilton Chambers, 199 Lambton Quay, Wellington, NZ (and surrounds). Some eminent Hamilton dignatories further endorsed the site this morning.
-
-* 31/05/2026: NZSIS have been informed of political interference surrounding a locksmith request for Hamilton Chambers. This led to Scott not being able to sleep inside DF HQ on opening night.
-
-* 31/05/2026: DF is aware of financial misconduct by those subjecting Kiwibank to Sunday trading restrictions leading to DF not being able to review the DF budget in full. I cannot print all my accounts on any ATM. And the branch is closed.
-
-* 31/05/2026: Three locksmiths have not arrived or responded. The Mayor did not respond to a request to arrange  the work. As at 1:05PM I await a fourth locksmith to reply via email.
-
-* 1/06/2026: Police on the beat said a Civil DIspute may be needed. This would keep the Courts busy but would still not get me a locksmith. And it would waste my time. I have contacted the Greens and Maori Party as I wish to work with adults.
-
-* 1/06/2026: I have requested that Police arrest Chris Luxon and Andrew Little and Nicola Willis and charge them with perverting the course of justice: https://www.nzlii.org/nz/legis/consol_act/ca196182/s116.html regarding my ACC claim, my Ngāpuhi claim, et al.
-
-* 1/06/2026: I have reached out to Farry's menswear as they moved a few hundred metres from Hamilton Chambers not long ago. They might have the key.
-
-* 1/06/2026: I was fed tonight and fed well by the community. After 18 months now, this is yet another week where I would be dead if I relied solely on ACC processing my claim.
-
-* 1/06/2026: A plan was shared with DF/GP/MP (Democracy Forward / Green Party / Maori Party) to enter lobbies of buildings and read the WOF sheet and then contact and invite property owners and others to get food and unused equipment and items out of the buildings and share them with the community.
-
-* 1/06/2026: Mayor Andrew Little was again invited outside and for comment but neither are forthcoming or apparent.
-
-* 2/06/2026: While sleeping in the Wellington train station I got rudely and needlessly woken up by an Allied Security staff member (at 1AM) with nothing else to do while on shift but to perform sleep deprivation tasks on someone. WCC and GWRC and Metlink are closely linked to Allied Security. NZ First have been known in the past to be National's "surveillance wing". Andrew Little is still unable or unwilling to meet. Need I remind that this round of pathetic behaviours started over a $400-500 locksmith job that was politically tinkered with by WCC instead of enabled?
-
-* 2/06/2026: After a public speech out the front of Hamilton Chambers at 3AM, McDonald's staff have arrived and are assisting with the unloading of an enornous amount of goods from 3 trucks. Capitalism has the capacity to provide when given the correct thump. I expect it's going to be quite a morning. Happy to watch.
-
-* 2/06/2026: I have discussed the situation with local retailers. As at 11:30AM I am waiting on a key, and some quotes. The Stone of Patience remains in place at this time.
-
-* 2/06/2026: I have been again fed by whanau at Woolies across the road. MSD will pay me $377 tomorrow.
-  
-
 **Overview**
 
 * Current plans are to distribute 5G or Starlink based voting rods to households, so people can vote on a range of issues from their home. Every Saturday. Issues are presented on Free To Air TV. 
 
 * Like a gameshow, but not at all a game.*
-
-**Finances**
-
-* DF has a operating budget of $0.74c. Scott is alive only because of the community. MSD and ACC and such may be still plotting his death via democidal preferences.
-* DF's income is $377.56 a week (from MSD, sometimes).
-* MSD do not allow Scott to get Food Grants.
-* MSD shows that Scott's TAS payment is both suspended and active.
-* DF has not received financial donations despite requests.
-* DF does receive occasional food donations ensuring Scott continues to be alive.
-
-**Questions**
-
-* Need I remind you that this is happening a few hundred metres from the Beehive?
-* Need I remind you that this is happening during a global media blackout about me?
-* Need I remind you that I am surrounded by skyscrapers that have virtually no people in them (if any) and are packed with food and equipment and supplies that was left behind by people who never really cared that much about NZ?
-* Do you really still have soft spots for those empty spaces, National? Because there are other options. 
-* Is it a little too hard to admit what happened, National?
 
 **Funding**
 
