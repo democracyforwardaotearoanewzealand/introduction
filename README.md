@@ -2,9 +2,7 @@
 
 Politics: "the way we are".
 
-https://scottradvan.substack.com/p/a-better-nz-legal-system shows DF's legal system redesign. All of this could fit into the Supreme Court building in Thorndon. But instead of enacting real change, the jurisdictional calamity continues, and Labrat Politics are conducted and architected by National upon the few.
-
-National party members and faithful have repeatedly tried to kill me, block DF's registration, its progress, its welcome, and are still blocking its funding. SFO, NZSIS, Police, and the Royal Family have been informed (again).
+https://scottradvan.substack.com/p/a-better-nz-legal-$ed to kill me, block DF's registration, its progress, its welcome, and are still blocking its funding. SFO, NZSIS, Police, and the Royal Family have been informed (again).
 
 **People in Wellington NZ have been having several discussions about the empty buildings in town. I stand by my hypothesis that the 5M people in NZ could be housed, fed, cared for, and would fit into Wellington and its buildings. But we still have homeless people sleeping outside not just offices on ground floor, but outside empty skyscrapers. And we have people who can't afford their mortgages. And people who can't afford rent. Or food. Or clothes. Or medicine. What to do? Do we need locksmiths? Or on this very 2nd June, can we get access otherwise? Who's to say? There are lobbies. And buildings have stuff in them. Do we need to build new hospitals and schools, National? Or is it time to repurpose?**
 
@@ -82,6 +80,7 @@ DF is working with the Royal Family and others for donations/claims. Scott has c
 - Ngapuhi claim - $6B NZD.
 - US tariff refunds - as Ngapuhi were less able to export culture - $10B NZD.
 - China bonds to ensure a bright future - $30B NZD.
+- A $500M claim from ICJ: https://icj-cij.org/home to consolidate the legal system and launch Cyber Court properly.
 - A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - $12B NZD.
 - Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales mometum is up and they have new billboards around Wellington. $4B NZD.
 
