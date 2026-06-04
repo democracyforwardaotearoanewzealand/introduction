@@ -6,8 +6,6 @@
 
 * Like a gameshow, but not at all a game.*
 
-https://scottradvan.substack.com/ has diagrams and charts. 
-
 **Funding**
 
 DF is working with the Royal Family and others for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered:
