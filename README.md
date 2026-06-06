@@ -12,7 +12,7 @@ DF is working with the Royal Family and others for donations/claims. Scott has c
 
 - Personal ACC claim - $200M NZD.
 - Ngapuhi claim - $6B NZD.
-- US tariff refunds - as Ngapuhi were less able to export culture - $10B NZD.
+- US tariff refunds - as Ngapuhi were less able to export & import culture - $10B NZD.
 - China bonds to ensure a bright future - $30B NZD.
 - A $500M claim from ICJ: https://icj-cij.org/home to consolidate the legal system and launch Cyber Court properly.
 - A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - $12B NZD.
