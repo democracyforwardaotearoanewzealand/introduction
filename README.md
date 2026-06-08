@@ -6,14 +6,22 @@
 
 * Like a gameshow, but not at all a game.*
 
+**Location**
+
 * Democracy Forward HQ is at 195B Lambton Quay (Hamilton Chambers), Wellington NZ 6011.
+
+**Donations**
 
 * DF has started a CFD (Call For Donations) as the campaign ramps up.
 
 Address: Kiwibank Limited, Level 9, 20 Customhouse Quay, Wellington, 6011, New Zealand
+
 SWIFT/BIC code: KIWINZ22
+
 Account Holder/Name: Scott Radvan - Democracy Forward
+
 Bank: Kiwibank (NZ)  
+
 Account Number: 38-9016-0892657-XX, where XX is one of the jewels of life:
 
   11 - Love
@@ -35,7 +43,7 @@ https://www.kiwibank.co.nz/business-banking/international-business/receiving-mon
 
 _During times of universal deceit, telling the truth is a revolutionary act._  - **G. Orwell.** 
 
-**Funding**
+**Financial Claims**
 
 DF is working with the Royal Family and others for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered:
 
@@ -47,7 +55,7 @@ DF is working with the Royal Family and others for donations/claims. Scott has c
 - A legal case (Weatherby's Racing Authority vs McDonalds) - to reduce animal cruelty - Transbeing Vision - $12B NZD.
 - Pepsi royalty case - when Wellington region was acoustically traumatised and otherwise affected by the Hikoi, Avatar 3 tourism, and other ongoing behaviours - I was one of the only people drinking Pepsi openly at the time and now their sales mometum is up and they have new billboards around Wellington. $4B NZD.
 
-**Party Details**
+**Concepts and Beginnings**
 
 * The fundamental concept is that we are each one person. I am only one person. I get one say. We all have opinions. Sometimes we disagree and argue. But that's how it works. Opinions are a very good thing. Caring for Aotearoa New Zealand comes from a very good place. It means we want to have a say. And we all deserve one.
 
@@ -59,13 +67,13 @@ DF is working with the Royal Family and others for donations/claims. Scott has c
 
 * https://elections.nz/media-and-news/2026/2026-broadcasting-allocation-decision is important.
 
-**Discourse**
+**Why do this? What started it all?**
 
-Good question. I can learn something from anyone. I consider myself an agile listener. And I never believe everything I read. That's called critical thinking. And a lot of people will write and speak in a way that forces their views. And healthy discourse can stop that from happening. And the people involved will respect eachother more and understand eachother more if we have healthy discourse. 
+Good question. I can learn something from anyone. I consider myself an agile listener. And I never believe everything I read. That's a huge part of critical thinking. And a lot of people will write and speak in a way that forces their views. And it takes time to detect when people are doing it to you and to learn how to respond. And healthy discourse can stop that from happening. And the people involved will respect eachother more and understand eachother more if we have healthy discourse. Better to have robust discussions than none.
 
 And healthy discourse involves being able to doubt things. And form our own views. 
 
-So I like to find better ways to understand things. And that's like a muscle. 
+So I like to find better ways to understand things. How to consider many viewpoints on things. Multiple perspectives. With as little bias as I can muster. And that's like a muscle I work on. 
 
 But only when my daughter walked up to me once did I really start to learn how to understand things. She walked up to me once and asked me calmly: "What happen?"
 
