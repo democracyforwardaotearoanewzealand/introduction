@@ -6,6 +6,8 @@
 
 * Like a gameshow, but not at all a game.*
 
+* Democracy Forward HQ is at 195B Lambton Qyay (Hamilton Chambers), Wellington NZ 6011.
+
 **Funding**
 
 DF is working with the Royal Family and others for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered:
