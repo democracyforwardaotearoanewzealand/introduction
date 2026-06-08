@@ -10,7 +10,11 @@
 
 * DF has started a CFD (Call For Donations) as the campaign ramps up.
 
-Bank: Kiwibank (NZ)  Account: 38-9016-0892657-XX, where XX is one of the jewels of life:
+Address: Kiwibank Limited, Level 9, 20 Customhouse Quay, Wellington, 6011, New Zealand
+SWIFT/BIC code: KIWINZ22
+Account Holder/Name: Scott Radvan - Democracy Forward
+Bank: Kiwibank (NZ)  
+Account Number: 38-9016-0892657-XX, where XX is one of the jewels of life:
 
   11 - Love
   12 - Knowledge
