@@ -6,7 +6,9 @@
 
 * Like a gameshow, but not at all a game.*
 
-* Democracy Forward HQ is at 195B Lambton Qyay (Hamilton Chambers), Wellington NZ 6011.
+* Democracy Forward HQ is at 195B Lambton Quay (Hamilton Chambers), Wellington NZ 6011.
+
+* DF has started a CFD (Call For Donations) on-site. Details to be added on this site soon.
 
 **Funding**
 
