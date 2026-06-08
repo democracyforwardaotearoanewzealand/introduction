@@ -27,7 +27,7 @@ Bank: Kiwibank (NZ)  Account: 38-9016-0892657-<xx>, where xx is one of the jewel
 
 BSB and Routing Numbers and other things depend on the bank you are sending from. Thank you for your assistance. 
 
-"During tinems of universal deceit, telling the truth is a revolutionary act." - G. Orwell. 
+_During times of universal deceit, telling the truth is a revolutionary act._  - **G. Orwell.** 
 
 **Funding**
 
