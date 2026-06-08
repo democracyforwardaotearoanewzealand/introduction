@@ -73,7 +73,7 @@ Good question. I can learn something from anyone. I consider myself an agile lis
 
 And healthy discourse involves being able to doubt things. And form our own views. 
 
-So I like to find better ways to understand things. How to consider many viewpoints on things. Multiple perspectives. With as little bias as I can muster. And that's like a muscle I work on. 
+So I like to find better ways to understand things. How to consider many viewpoints on things. Multiple perspectives. With as little bias as I can gather. And that's like a muscle I work on. 
 
 But only when my daughter walked up to me once did I really start to learn how to understand things. She walked up to me once and asked me calmly: "What happen?"
 
