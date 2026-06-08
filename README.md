@@ -124,7 +124,7 @@ Here are the issues I think about that never seem to get sorted out. I have been
 
 <img width="605" height="399" alt="image" src="https://github.com/user-attachments/assets/141e62e4-2f33-4cf6-b9b7-3c5126cbaa96" />
 
-DF is a standalone party. Standalone. Not coaligned with others. Some names may be listed on other party's websites. But they can be added. And sometimes they don't get deleted.
+DF is a standalone party. Requests for coalignment have been made but none are formalised yet. Some names may be listed on other party's websites. But they can be added. And sometimes they don't get deleted.
 
 Democracy Forward is working with https://www.remoteoz.com/ for the remotes and has reached out to Elon Musk for more Starlionk launches.
 
