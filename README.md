@@ -4,7 +4,7 @@
 
 * Current plans are to distribute 5G or Starlink based voting rods to households, so people can vote on a range of issues from their home. Every Saturday. Issues are presented on Free To Air TV. 
 
-* Like a gameshow, but not at all a game.*
+* Like a gameshow, but not at all a game.
 
 **Location**
 
