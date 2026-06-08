@@ -45,7 +45,7 @@ _During times of universal deceit, telling the truth is a revolutionary act._  -
 
 **Financial Claims**
 
-DF is working with the Royal Family and others for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered:
+DF is working with the Royal Family and others for donations/claims. Scott has claimed the following through them, as some division of personal and political funds once delivered. None are delivered yet. I am working locally to take ACC to a hearing at Supreme Court. The case name is SUPREMO-101. Thanks for your support. 
 
 - Personal ACC claim - $200M NZD.
 - Ngapuhi claim - $6B NZD.
