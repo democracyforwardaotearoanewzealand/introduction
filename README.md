@@ -37,7 +37,7 @@ Account Number: 38-9016-0892657-XX, where XX is one of the jewels of life:
 * 21 - Happiness
 * 22 - Understanding
 
-BSB and Routing Numbers and other things depend on the bank you are sending from. Thank you for your assistance. 
+BSB and Routing Numbers and other things depend on the bank you are sending from. Thank you for your support. 
 
 https://www.kiwibank.co.nz/business-banking/international-business/receiving-money-overseas/ might help. 
 
