@@ -10,7 +10,7 @@
 
 * DF has started a CFD (Call For Donations) as the campaign ramps up.
 
-Bank: Kiwibank (NZ)  Account: 38-9016-0892657-<xx>, where xx is one of the jewels of life:
+Bank: Kiwibank (NZ)  Account: 38-9016-0892657-XX, where XX is one of the jewels of life:
 
   11 - Love
   12 - Knowledge
