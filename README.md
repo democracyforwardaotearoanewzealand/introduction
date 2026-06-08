@@ -10,7 +10,7 @@
 
 * DF has started a CFD (Call For Donations) as the campaign ramps up.
 
-  38-9016-0892657-<xx>, where xx is each of the jewels of life:
+Bank: Kiwibank (NZ)  Account: 38-9016-0892657-<xx>, where xx is each of the jewels of life:
 
   11 - Love
   12 - Knowledge
@@ -24,6 +24,8 @@
   20 - Peace
   21 - Happiness
   22 - Understanding
+
+BSB and Routing Numbers and other things depend on the bank you are sending from.
 
 **Funding**
 
