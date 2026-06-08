@@ -8,7 +8,22 @@
 
 * Democracy Forward HQ is at 195B Lambton Quay (Hamilton Chambers), Wellington NZ 6011.
 
-* DF has started a CFD (Call For Donations) on-site. Details to be added on this site soon.
+* DF has started a CFD (Call For Donations) as the campaign ramps up.
+
+  38-9016-0892657-<xx>, where xx is each of the jewels of life:
+
+  11 - Love
+  12 - Knowledge
+  13 - Wisdom
+  14 - Freedom
+  15 - Justice
+  16 - Eqaulity
+  17 - Food
+  18 - Clothing
+  19 - Shelter
+  20 - Peace
+  21 - Happiness
+  22 - Understanding
 
 **Funding**
 
