@@ -24,18 +24,18 @@ Bank: Kiwibank (NZ)
 
 Account Number: 38-9016-0892657-XX, where XX is one of the jewels of life:
 
-  11 - Love
-  12 - Knowledge
-  13 - Wisdom
-  14 - Freedom
-  15 - Justice
-  16 - Eqaulity
-  17 - Food
-  18 - Clothing
-  19 - Shelter
-  20 - Peace
-  21 - Happiness
-  22 - Understanding
+* 11 - Love
+* 12 - Knowledge
+* 13 - Wisdom
+* 14 - Freedom
+* 15 - Justice
+* 16 - Eqaulity
+* 17 - Food
+* 18 - Clothing
+* 19 - Shelter
+* 20 - Peace
+* 21 - Happiness
+* 22 - Understanding
 
 BSB and Routing Numbers and other things depend on the bank you are sending from. Thank you for your assistance. 
 
